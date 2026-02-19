@@ -1,5 +1,5 @@
 👋 Hello, I'm Emir
-
+ I have B1 level knowledge of English and A1.2 level knowledge of German. 
 **16-Year-Old Cybersecurity & Software Development Enthusiast | Student | Open to Opportunities**
 
 I'm a passionate and driven student diving deep into the world of cybersecurity and software development. I believe in learning by doing and building tools to understand how technology works from the ground up.
